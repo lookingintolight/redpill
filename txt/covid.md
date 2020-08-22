@@ -90,11 +90,11 @@
   - https://www.bitchute.com/video/Ej0OELFifods/ (DR. MERCOLA DISCUSSES THE WORLD HEALTH ORGANIZATION)
 
 ### Vaccine ingridients
-  How to legally decline a vaccine:
-    https://1.bp.blogspot.com/-iI26vdu5ZHU/XzZDi2eC0kI/AAAAAAABN-s/9XZ3YgivJhwlmA7s-z9a13JFKU0ge054ACLcBGAsYHQ/s640/110026934_1221649391500986_5678400946059981346_n.jpg
-  MRC-5
+  - How to legally decline a vaccine:
+    - https://1.bp.blogspot.com/-iI26vdu5ZHU/XzZDi2eC0kI/AAAAAAABN-s/9XZ3YgivJhwlmA7s-z9a13JFKU0ge054ACLcBGAsYHQ/s640/110026934_1221649391500986_5678400946059981346_n.jpg
+  - MRC-5
     - https://en.wikipedia.org/wiki/MRC-5 (lung tissue of a 14 week old aborted Caucasian male fetus)
-  Latrogenic Reaction
+  - Latrogenic Reaction
     - https://www.globalresearch.ca/america-iatrogenic-epidemic-drug-vaccine-induced-disorders/5687394
     - https://en.wikipedia.org/wiki/Iatrogenesis
 
