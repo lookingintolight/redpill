@@ -9,6 +9,8 @@
   - https://www.nommeraadio.ee/meedia/pdf/RRS/Rockefeller%20Foundation.pdf (from page 18)
   - https://behind-the-news.com/operation-lock-step-the-sinister-agenda-behind-covid-19/
   - https://www.globalresearch.ca/all-sectors-us-establishment-lock-step-deep-states-latest-bio-war/5702773 (VIDEO in the middle of the article)
+  - https://behind-the-news.com/post-lockdown-the-rockefeller-game-plan-part-1-of-a-2-part-series/
+  - https://behind-the-news.com/post-lockdown-the-rockefeller-game-plan-part-2-of-a-2-part-series/
 
 ### German Doctors
   - https://www.youtube.com/watch?v=UP-1gZpNZvg - 640 German Doctors Challenge CV19 Narrative, Who Benefits & Who Has the Power to do this?
