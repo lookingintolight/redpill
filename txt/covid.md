@@ -30,7 +30,38 @@
 
 
 ### Vaxxed (Movie about Vaccines, 1h 30m)
-  - https://videos.utahgunexchange.com/watch/vaxxed-from-cover-up-to-catastrophe-2016_3mi8xnYwzpdPfEk.html
+  - Vaxxed I 
+    - https://videos.utahgunexchange.com/watch/vaxxed-from-cover-up-to-catastrophe-2016_3mi8xnYwzpdPfEk.html
+
+  - Vaxxed II 
+    - https://www.bitchute.com/video/yU0P62jhVcTg/ (english)
+  - Interviews visitors
+    - https://www.youtube.com/watch?v=vVZNKL2jA2Y (VAXXED – Der Film, der nicht gesehen werden darf Andrew Wakefield in Berlin1)
+
+
+### A shot in the dark (2020 Movie)
+  - https://www.bitchute.com/video/ijI50EmoQZid/ 
+  - The Plan to Vaccinate Everyone in the U.S. (Barbara Loe Fisher)
+  - https://www.bitchute.com/video/8GYZMfSWN0iw/
+  - Coronavirus Déjà vu - Swine Flu Vaccination Fraud of 1976
+  - https://www.bitchute.com/video/APquE1hZY9GF/
+  - Merck Scientist Admits Contaminated Polio Vaccine was the Source of AIDS Epidemic
+  - https://www.bitchute.com/video/VgiodSVXac9t/
+  - The Vaccine Business - Poison. Profit and Corruption
+  - https://www.bitchute.com/video/EbaochrxeUVD/
+  - Vaccines: Big Pharma's New Blockbuster
+  - https://www.bitchute.com/video/dpvNrmVD8SyS/
+  - Vaccine Sorcery, Depopulation & Eugenics
+  - https://www.bitchute.com/video/kzzafCpGpzta/
+  - VAXXED: From Cover-up To Catastrophe (incl. many hard to find links in video description)
+  - https://www.bitchute.com/video/AAULTRRHpDJf/
+  - Download The CDC Autism/MMR Files Released By Dr. William Thompson:
+  - https://vaxxedthemovie.com/download-the-cdc-autism-mmr-files-released-by-dr-william-thompson/
+  - VAXXED II: The People's Truth
+  - https://www.bitchute.com/video/XoFHzgnhn61K/
+  - Video Source: Hibbeler Productions
+  - https://youtu.be/B2N35yVQcSk
+
 
 ### HYDROXYCHLOROQUINE
   - https://hcq.news/#/
