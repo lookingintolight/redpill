@@ -28,6 +28,10 @@
   - https://twitter.com/HighWireTalk/status/1296507320738824193
   - https://www.pscp.tv/w/1YpJkNnMAvdGj
 
+
+### Vaxxed (Movie about Vaccines, 1h 30m)
+  - https://videos.utahgunexchange.com/watch/vaxxed-from-cover-up-to-catastrophe-2016_3mi8xnYwzpdPfEk.html
+
 ### HYDROXYCHLOROQUINE
   - https://hcq.news/#/
   - https://twitter.com/hashtag/HCQWorks?src=hashtag_click
@@ -51,6 +55,19 @@
   - https://www.bitchute.com/video/qCSOrsAnI6e2/ (COVID-19 AND FACE MASKS- INTERVIEW WITH DENIS RANCOURT)
 
 
+### WHO (World Health Organization)
+  - https://www.bitchute.com/video/Ej0OELFifods/ (DR. MERCOLA DISCUSSES THE WORLD HEALTH ORGANIZATION)
+
+### Vaccine ingridients
+  How to legally decline a vaccine:
+    https://1.bp.blogspot.com/-iI26vdu5ZHU/XzZDi2eC0kI/AAAAAAABN-s/9XZ3YgivJhwlmA7s-z9a13JFKU0ge054ACLcBGAsYHQ/s640/110026934_1221649391500986_5678400946059981346_n.jpg
+  MRC-5
+    - https://en.wikipedia.org/wiki/MRC-5 (lung tissue of a 14 week old aborted Caucasian male fetus)
+  Latrogenic Reaction
+    - https://www.globalresearch.ca/america-iatrogenic-epidemic-drug-vaccine-induced-disorders/5687394
+    - https://en.wikipedia.org/wiki/Iatrogenesis
+
+
 ### Predictions
   - https://twitter.com/richardursomd/status/1295509406155669505/photo/1 (Dean Koontz -> The Eyes Of Darkness)
 
@@ -63,19 +80,6 @@
 ### Außerparlamentarischer Corona Untersuchungsausschuss
   - https://acu2020.org/hearings/ - Anhörungen / Hearings – ACU 2020
   - https://acu2020.org/english-versions/ (ENGLISH)
-
-
-### WHO (World Health Organization)
-  - https://www.bitchute.com/video/Ej0OELFifods/ (DR. MERCOLA DISCUSSES THE WORLD HEALTH ORGANIZATION)
-
-### Vaccine ingridients
-  How to legally decline a vaccine:
-    https://1.bp.blogspot.com/-iI26vdu5ZHU/XzZDi2eC0kI/AAAAAAABN-s/9XZ3YgivJhwlmA7s-z9a13JFKU0ge054ACLcBGAsYHQ/s640/110026934_1221649391500986_5678400946059981346_n.jpg
-  MRC-5
-    - https://en.wikipedia.org/wiki/MRC-5 (lung tissue of a 14 week old aborted Caucasian male fetus)
-  Latrogenic Reaction
-    - https://www.globalresearch.ca/america-iatrogenic-epidemic-drug-vaccine-induced-disorders/5687394
-    - https://en.wikipedia.org/wiki/Iatrogenesis
 
 
 
@@ -126,6 +130,11 @@
   - Dr. Lisa Koche, MD
     - https://twitter.com/FreeAmerica2024/status/1289047208461885441?s=20 Dr. Lisa Koche, MD is speaking out about the coronavirus
       HYDROXYCHLOROQUINE, censorship, prevent prescription to patients, how does HYDROXYCHLOROQUINE work
+
+  - Dr. David Martin 
+    - https://www.davidmartin.world/
+    - https://www.youtube.com/watch?v=ZdbE8qv7cvo - Dr David Martin On Legal Case Against People Involved In Creating Super-Viruses
+    - https://www.youtube.com/watch?v=S_uSZAWQmMM - Covid 19 Fact or Fiction with David Martin | TotalHealth TV
 
   - James Todaro, MD
     - https://twitter.com/JamesTodaroMD
