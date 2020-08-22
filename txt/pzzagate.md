@@ -1,6 +1,7 @@
 ### Reddit
 
 - https://www.reddit.com/r/PedoGate/
+- http://themillenniumreport.com/2020/08/pedogate-2020-massive-update/ (Aug. 2020 update)
 
 
 ### Twitter
