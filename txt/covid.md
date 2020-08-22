@@ -7,18 +7,11 @@
 
 ### Rockefeller Lockstep Protocol
   - https://www.nommeraadio.ee/meedia/pdf/RRS/Rockefeller%20Foundation.pdf (from page 18)
-  - https://behind-the-news.com/operation-lock-step-the-sinister-agenda-behind-covid-19/
+  - http://themillenniumreport.com/2020/07/rockefeller-lockstep-2010-was-blueprint-for-2020-covid-19-pandemic/ - The Covid-Plan / Rockefeller Lockstep 2010
   - https://www.globalresearch.ca/all-sectors-us-establishment-lock-step-deep-states-latest-bio-war/5702773 (VIDEO in the middle of the article)
+  - https://behind-the-news.com/operation-lock-step-the-sinister-agenda-behind-covid-19/
   - https://behind-the-news.com/post-lockdown-the-rockefeller-game-plan-part-1-of-a-2-part-series/
   - https://behind-the-news.com/post-lockdown-the-rockefeller-game-plan-part-2-of-a-2-part-series/
-
-### German Doctors
-  - https://www.youtube.com/watch?v=UP-1gZpNZvg - 640 German Doctors Challenge CV19 Narrative, Who Benefits & Who Has the Power to do this?
-  - https://www.congress.gov/bill/116th-congress/house-bill/6666/text - H.R.6666 - COVID-19 Testing, Reaching, And Contacting Everyone (TRACE) Act
-  - https://www.bitchute.com/video/Qr2SNhpW0SAB/ - Dr. Daniel Erickson, owner of seven CA urgent care facilities, was thrown into the spotlight after his press conference on the COVID 19 stirred up enough controversy to get censored by YouTube. Here’s Del’s follow-up interview and this doc’s message is clear: he is not backing down
-  - https://www.bitchute.com/video/zr04GsUupOwk/ - WE HAVE BEEN LIED TO - AMERICAN DOCTORS ADDRESS COVID-19 MISINFORMATION AT SCOTUS PRESS CONFERENCE. (43 mins)
-  - https://twitter.com/grasshopperxcc/status/1293868678421917696?s=20
-
 
 ### We Know it’s Curable; It’s Easier than Treating the Flu” — Professor Thomas Borody
   - http://covexit.com/we-know-its-curable-its-easier-than-treating-the-flu-professor-thomas-borody/
@@ -28,9 +21,12 @@
 
 
 ### Plandemic (full featured movie) - 1h 20m
-- https://newtube.app/user/anthony/qCTTHXa
+  - https://newtube.app/user/anthony/qCTTHXa
+  - https://plandemicseries.com/
 
-
+### COVID19: CONNECTING THE DOTS (Video)
+  - https://twitter.com/HighWireTalk/status/1296507320738824193
+  - https://www.pscp.tv/w/1YpJkNnMAvdGj
 
 ### HYDROXYCHLOROQUINE
   - https://hcq.news/#/
@@ -59,7 +55,10 @@
   - https://twitter.com/richardursomd/status/1295509406155669505/photo/1 (Dean Koontz -> The Eyes Of Darkness)
 
 
-
+### Doctors
+  - https://www.bitchute.com/video/Qr2SNhpW0SAB/ - Dr. Daniel Erickson, owner of seven CA urgent care facilities, was thrown into the spotlight after his press conference on the COVID 19 stirred up enough controversy to get censored by YouTube. Here’s Del’s follow-up interview and this doc’s message is clear: he is not backing down
+  - https://www.bitchute.com/video/zr04GsUupOwk/ - WE HAVE BEEN LIED TO - AMERICAN DOCTORS ADDRESS COVID-19 MISINFORMATION AT SCOTUS PRESS CONFERENCE. (43 mins)
+  - https://twitter.com/grasshopperxcc/status/1293868678421917696?s=20
 
 ### Außerparlamentarischer Corona Untersuchungsausschuss
   - https://acu2020.org/hearings/ - Anhörungen / Hearings – ACU 2020
