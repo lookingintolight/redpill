@@ -13,7 +13,7 @@
 
 
 ### We Know it’s Curable; It’s Easier than Treating the Flu” — Professor Thomas Borody
-  http://covexit.com/we-know-its-curable-its-easier-than-treating-the-flu-professor-thomas-borody/
+  - http://covexit.com/we-know-its-curable-its-easier-than-treating-the-flu-professor-thomas-borody/
   Based on existing research and his analysis of therapeutic results using Ivermectin in combination with 2 other widely available generic drugs – Doxycycline and Zinc -, he asserts that COVID-19 is now curable and even easier to treat than the flu.
   “We came up with a treatment that is simple, safe, and can get rid of the coronavirus in almost all patients treated within 6 to 10 days.”
   “There is no drug company behind it. There are no people who are lobbying government and giving donations for reelections and so forth. I don’t know the answer.”
@@ -25,24 +25,22 @@
 
 
 ### HYDROXYCHLOROQUINE
-  https://hcq.news/#/
-  https://twitter.com/hashtag/HCQWorks?src=hashtag_click
-  https://twitter.com/search?q=hydroxychloroquine%20&src=typed_query
-  https://twitter.com/richardursomd/status/1294438462423273473
+  - https://hcq.news/#/
+  - https://twitter.com/hashtag/HCQWorks?src=hashtag_click
+  - https://twitter.com/search?q=hydroxychloroquine%20&src=typed_query
+  - https://twitter.com/richardursomd/status/1294438462423273473
 
-  https://twitter.com/SelfieShanNow/status/1288151250232582145
+  - https://twitter.com/SelfieShanNow/status/1288151250232582145
     I wasn't but one of my friends was. Was diagnosed with Covid-19. He was feeling horrible for a week, and then he asked his Dr to give him hydroxichloroquine. He was feeling better within a few hours. #HCQworks
-  https://www.thegatewaypundit.com/2020/08/killer-fauci-even-developing-nations-algeria-india-indonesia-cuba-used-hcq-fared-better-us-treating-coronavirus-average-79-better/
-
-
-  https://twitter.com/Sundncefn/status/1290631791150338048
+  - https://www.thegatewaypundit.com/2020/08/killer-fauci-even-developing-nations-algeria-india-indonesia-cuba-used-hcq-fared-better-us-treating-coronavirus-average-79-better/
+  - https://twitter.com/Sundncefn/status/1290631791150338048
     Dr. FAUCI in 2005 says HYDROXYCHLOROQUINE is effective against Corona viruses.
 
 ### CDS (Chlordioxide)
   - https://www.bitchute.com/video/M0g7b9LO6Jjf/ (OVER 100 RECOVERED FROM COVID-19 WITH CDS BY PHYSICIANS OF THE AEMEMI)
 
 ### The Charlie Kirk Show: Nine Doctors Speak Out.
-  https://www.youtube.com/watch?v=nn2P4-cK_K8 (1h 23m)
+  - https://www.youtube.com/watch?v=nn2P4-cK_K8 (1h 23m)
 
 
 ### Masks dont work
@@ -56,8 +54,8 @@
 
 
 ### Außerparlamentarischer Corona Untersuchungsausschuss
-  https://acu2020.org/hearings/ - Anhörungen / Hearings – ACU 2020
-  https://acu2020.org/english-versions/ (ENGLISH)
+  - https://acu2020.org/hearings/ - Anhörungen / Hearings – ACU 2020
+  - https://acu2020.org/english-versions/ (ENGLISH)
 
 
 ### WHO (World Health Organization)
@@ -80,30 +78,30 @@
     - https://twitter.com/elonmusk/status/1239776019856461824
 
   Jean-Pierre K.
-    https://twitter.com/jpkiekens
-    http://covexit.com/
+    - https://twitter.com/jpkiekens
+    - http://covexit.com/
 
   Dr. Daniel Erickson
-    https://off-guardian.org/2020/04/29/watch-dr-erickson-covid19-briefing-censored-by-youtube/
+    - https://off-guardian.org/2020/04/29/watch-dr-erickson-covid19-briefing-censored-by-youtube/
 
   Dr. Judy Mikovits
-    https://twitter.com/DrJudyAMikovits
+    - https://twitter.com/DrJudyAMikovits
 
 
   Dr Li-Meng Yan (Whistleblower)
-    http://covexit.com/whistleblower-dr-li-meng-yan-comments-the-global-politics-of-hydroxychloroquine-says-she-takes-the-drug-for-prevention/
+    - http://covexit.com/whistleblower-dr-li-meng-yan-comments-the-global-politics-of-hydroxychloroquine-says-she-takes-the-drug-for-prevention/
 
   Dr. Zev Zelenko (Dr Vladimir Zelenko)
-    https://twitter.com/zev_dr/status/1291401242233708547
+    - https://twitter.com/zev_dr/status/1291401242233708547
 
   Dr. Simone Gold
-    https://twitter.com/drsimonegold
-    https://twitter.com/BarrettWilson6/status/1289000840192237569
-    https://twitter.com/drsimonegold/status/1290332308394766338 (After @JamesTodaroMD published a document demonstrating HCQ works against Covid-19 (which received millions of views and was shared by Elon Musk), it was censored and removed from Google.)
-    https://www.youtube.com/watch?v=JVFoQ7OWl48 - The Conspiracy is no Theory
+    - https://twitter.com/drsimonegold
+    - https://twitter.com/BarrettWilson6/status/1289000840192237569
+    - https://twitter.com/drsimonegold/status/1290332308394766338 (After @JamesTodaroMD published a document demonstrating HCQ works against Covid-19 (which received millions of views and was shared by Elon Musk), it was censored and removed from Google.)
+    - https://www.youtube.com/watch?v=JVFoQ7OWl48 - The Conspiracy is no Theory
 
   Dr. Richard Urso
-    https://twitter.com/richardursomd
+    - https://twitter.com/richardursomd
     https://newtube.app/user/VERITASISJUDGE/8ZmWSRg - Dr. Richard Urso / Ophthalmologist / Truth about treating Covid
       - intimidation of doctors
 
@@ -116,11 +114,11 @@
     - https://www.foxnews.com/media/dr-stephen-smith-on-effectiveness-of-hydroxychloroquine-with-coronavirus-symptoms-beginning-of-the-end-of-the-pandemic
 
   DR THOMAS COWAN
-    https://www.bitchute.com/video/TEThRUAWIxR1/ (BITCHUTE EXCLUSIVE: DR THOMAS COWAN SYSTEMATICALLY DECIMATES THE COVID-19 LIE!)
+    - https://www.bitchute.com/video/TEThRUAWIxR1/ (BITCHUTE EXCLUSIVE: DR THOMAS COWAN SYSTEMATICALLY DECIMATES THE COVID-19 LIE!)
 
   Dr. Lisa Koche, MD
-    https://twitter.com/FreeAmerica2024/status/1289047208461885441?s=20 Dr. Lisa Koche, MD is speaking out about the coronavirus
+    - https://twitter.com/FreeAmerica2024/status/1289047208461885441?s=20 Dr. Lisa Koche, MD is speaking out about the coronavirus
       HYDROXYCHLOROQUINE, censorship, prevent prescription to patients, how does HYDROXYCHLOROQUINE work
 
   James Todaro, MD
-    https://twitter.com/JamesTodaroMD
+    - https://twitter.com/JamesTodaroMD
