@@ -74,51 +74,51 @@
 
 ### Names:
 
-  Elon Musk
+  - Elon Musk
     - https://twitter.com/elonmusk/status/1239776019856461824
 
-  Jean-Pierre K.
+  - Jean-Pierre K.
     - https://twitter.com/jpkiekens
     - http://covexit.com/
 
-  Dr. Daniel Erickson
+  - Dr. Daniel Erickson
     - https://off-guardian.org/2020/04/29/watch-dr-erickson-covid19-briefing-censored-by-youtube/
 
-  Dr. Judy Mikovits
+  - Dr. Judy Mikovits
     - https://twitter.com/DrJudyAMikovits
 
 
-  Dr Li-Meng Yan (Whistleblower)
+  - Dr Li-Meng Yan (Whistleblower)
     - http://covexit.com/whistleblower-dr-li-meng-yan-comments-the-global-politics-of-hydroxychloroquine-says-she-takes-the-drug-for-prevention/
 
-  Dr. Zev Zelenko (Dr Vladimir Zelenko)
+  - Dr. Zev Zelenko (Dr Vladimir Zelenko)
     - https://twitter.com/zev_dr/status/1291401242233708547
 
-  Dr. Simone Gold
+  - Dr. Simone Gold
     - https://twitter.com/drsimonegold
     - https://twitter.com/BarrettWilson6/status/1289000840192237569
     - https://twitter.com/drsimonegold/status/1290332308394766338 (After @JamesTodaroMD published a document demonstrating HCQ works against Covid-19 (which received millions of views and was shared by Elon Musk), it was censored and removed from Google.)
     - https://www.youtube.com/watch?v=JVFoQ7OWl48 - The Conspiracy is no Theory
 
-  Dr. Richard Urso
+  - Dr. Richard Urso
     - https://twitter.com/richardursomd
     https://newtube.app/user/VERITASISJUDGE/8ZmWSRg - Dr. Richard Urso / Ophthalmologist / Truth about treating Covid
       - intimidation of doctors
 
-  Dr. Stella Immanuel
+  - Dr. Stella Immanuel
     - https://en.wikipedia.org/wiki/Stella_Immanuel (discredited wikipedia profile)
     - https://twitter.com/stella_immanuel
 
-  Dr. Stephen Smith
+  - Dr. Stephen Smith
     - https://twitter.com/drsimonegold/status/1293695018717175810
     - https://www.foxnews.com/media/dr-stephen-smith-on-effectiveness-of-hydroxychloroquine-with-coronavirus-symptoms-beginning-of-the-end-of-the-pandemic
 
-  DR THOMAS COWAN
+  - DR THOMAS COWAN
     - https://www.bitchute.com/video/TEThRUAWIxR1/ (BITCHUTE EXCLUSIVE: DR THOMAS COWAN SYSTEMATICALLY DECIMATES THE COVID-19 LIE!)
 
-  Dr. Lisa Koche, MD
+  - Dr. Lisa Koche, MD
     - https://twitter.com/FreeAmerica2024/status/1289047208461885441?s=20 Dr. Lisa Koche, MD is speaking out about the coronavirus
       HYDROXYCHLOROQUINE, censorship, prevent prescription to patients, how does HYDROXYCHLOROQUINE work
 
-  James Todaro, MD
+  - James Todaro, MD
     - https://twitter.com/JamesTodaroMD
