@@ -1,0 +1,24 @@
+{
+  "theme": "obsidian",
+  "pluginEnabledStatus": {
+    "File explorer": true,
+    "Search": true,
+    "Quick switcher": true,
+    "Graph view": true,
+    "Backlinks": true,
+    "Command palette": true,
+    "Markdown format importer": true,
+    "Word count": true,
+    "Page preview": true,
+    "Starred": true,
+    "Custom CSS": true,
+    "Zettelkasten prefixer": true
+  },
+  "spellcheck": true,
+  "readableLineLength": false,
+  "foldHeading": true,
+  "foldIndent": true,
+  "showLineNumber": true,
+  "useTab": false,
+  "promptDelete": false
+}

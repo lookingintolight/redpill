@@ -1,0 +1,89 @@
+{
+  "main": {
+    "id": "e5eee8a608996463",
+    "type": "split",
+    "children": [
+      {
+        "id": "ae94c7d4b2b101c4",
+        "type": "leaf",
+        "active": true,
+        "state": {
+          "type": "markdown",
+          "state": {
+            "file": "202008050241 Pizzagate.md",
+            "mode": "source"
+          }
+        }
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "3afd52bbd9970a3e",
+    "type": "split",
+    "children": [
+      {
+        "id": "3437bef903305bf9",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "9a3f9bcd3fe53338",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {}
+            }
+          },
+          {
+            "id": "2967642505a4e23d",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {}
+            }
+          },
+          {
+            "id": "8a483a990b51eb6f",
+            "type": "leaf",
+            "state": {
+              "type": "starred",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "right": {
+    "id": "f7c311da68ae99b1",
+    "type": "split",
+    "children": [
+      {
+        "id": "bf3798d09b85fcd1",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "f22536bfbca0e4cd",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300,
+    "collapsed": true
+  },
+  "lastOpenFiles": [
+    "202008050241 Pizzagate.md",
+    "202008050303 CIA.md",
+    "202008050215 BlackLivesMatter.md",
+    "202008061135 Free Energy.md",
+    "202008061035 Q-Anon.md"
+  ]
+}
