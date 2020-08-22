@@ -1,8 +1,14 @@
-
+## COVID 19
 
 ### Event 201
   - https://www.centerforhealthsecurity.org/event201/about -  Event 201
   - https://www.youtube.com/watch?v=BfRWJN1aSpY - Event 201 Pandemic Exercise short film
+
+
+### Rockefeller Lockstep Protocol
+  - https://www.nommeraadio.ee/meedia/pdf/RRS/Rockefeller%20Foundation.pdf (from page 18)
+  - https://behind-the-news.com/operation-lock-step-the-sinister-agenda-behind-covid-19/
+  - https://www.globalresearch.ca/all-sectors-us-establishment-lock-step-deep-states-latest-bio-war/5702773 (VIDEO in the middle of the article)
 
 ### German Doctors
   - https://www.youtube.com/watch?v=UP-1gZpNZvg - 640 German Doctors Challenge CV19 Narrative, Who Benefits & Who Has the Power to do this?
@@ -19,7 +25,7 @@
   “There is no drug company behind it. There are no people who are lobbying government and giving donations for reelections and so forth. I don’t know the answer.”
 
 
-### Plandemic (full featured movie)
+### Plandemic (full featured movie) - 1h 20m
 - https://newtube.app/user/anthony/qCTTHXa
 
 
@@ -29,7 +35,6 @@
   - https://twitter.com/hashtag/HCQWorks?src=hashtag_click
   - https://twitter.com/search?q=hydroxychloroquine%20&src=typed_query
   - https://twitter.com/richardursomd/status/1294438462423273473
-
   - https://twitter.com/SelfieShanNow/status/1288151250232582145
     I wasn't but one of my friends was. Was diagnosed with Covid-19. He was feeling horrible for a week, and then he asked his Dr to give him hydroxichloroquine. He was feeling better within a few hours. #HCQworks
   - https://www.thegatewaypundit.com/2020/08/killer-fauci-even-developing-nations-algeria-india-indonesia-cuba-used-hcq-fared-better-us-treating-coronavirus-average-79-better/
@@ -50,6 +55,7 @@
 
 ### Predictions
   - https://twitter.com/richardursomd/status/1295509406155669505/photo/1 (Dean Koontz -> The Eyes Of Darkness)
+
 
 
 
