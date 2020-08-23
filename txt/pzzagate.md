@@ -32,6 +32,12 @@ LEAKED VIDEO: ABC News Insider Recording EXPOSES EpsteinCoverup We had Clinton W
 
 ### Youtube
 
+#PizzaGate / #PedoGate - The UnAnswered Questions Documentary - Part 1
+  - https://www.youtube.com/watch?v=O5cbxANx5Yc
+
+#PizzaGate / #PedoGate - The UnAnswered Questions Documentary - Part 2
+  - https://www.youtube.com/watch?v=Pbncn4KEpj0
+
 Blake Lively Gives Emotional Speech on Child Pornography
   - https://www.youtube.com/watch?v=hMVHz-1I1zY
 

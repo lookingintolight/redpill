@@ -1,4 +1,6 @@
 ## COVID 19
+- https://off-guardian.org/category/coronavirus/ (Unlike the Guardian we are NOT funded by Bill & Melinda Gates, or any other NGO or government)
+
 
 ### Event 201
   - https://www.centerforhealthsecurity.org/event201/about -  Event 201
@@ -12,6 +14,10 @@
   - https://behind-the-news.com/operation-lock-step-the-sinister-agenda-behind-covid-19/
   - https://behind-the-news.com/post-lockdown-the-rockefeller-game-plan-part-1-of-a-2-part-series/
   - https://behind-the-news.com/post-lockdown-the-rockefeller-game-plan-part-2-of-a-2-part-series/
+
+### COVID-1984 THE FILM EVERYONE MUST SEE - 2h 35m
+  - https://www.bitchute.com/video/7Np2iIv2mVtK/
+
 
 ### We Know it’s Curable; It’s Easier than Treating the Flu” — Professor Thomas Borody
   - http://covexit.com/we-know-its-curable-its-easier-than-treating-the-flu-professor-thomas-borody/
@@ -104,6 +110,7 @@
 
 
 ### Doctors
+  - https://off-guardian.org/2020/03/28/10-more-experts-criticising-the-coronavirus-panic/ (10 MORE Experts Criticising the Coronavirus Panic - 2020/03)
   - https://www.bitchute.com/video/Qr2SNhpW0SAB/ - Dr. Daniel Erickson, owner of seven CA urgent care facilities, was thrown into the spotlight after his press conference on the COVID 19 stirred up enough controversy to get censored by YouTube. Here’s Del’s follow-up interview and this doc’s message is clear: he is not backing down
   - https://www.bitchute.com/video/zr04GsUupOwk/ - WE HAVE BEEN LIED TO - AMERICAN DOCTORS ADDRESS COVID-19 MISINFORMATION AT SCOTUS PRESS CONFERENCE. (43 mins)
   - https://twitter.com/grasshopperxcc/status/1293868678421917696?s=20
