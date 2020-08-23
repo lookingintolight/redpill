@@ -2,6 +2,11 @@
 - https://off-guardian.org/category/coronavirus/ (Unlike the Guardian we are NOT funded by Bill & Melinda Gates, or any other NGO or government)
 
 
+
+### Updates / News
+  - https://www.youtube.com/watch?v=rMrt1H0COuk&feature=youtu.be (DIE ERSTEN GALGEN WERDEN ERRICHTET ! - 2020/08/23)
+
+
 ### Event 201
   - https://www.centerforhealthsecurity.org/event201/about -  Event 201
   - https://www.youtube.com/watch?v=BfRWJN1aSpY - Event 201 Pandemic Exercise short film
