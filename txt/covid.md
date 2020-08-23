@@ -110,6 +110,7 @@
 
 
 ### Doctors
+  - https://www.youtube.com/channel/UCZbpVProEahJ3jftnCiM84A/videos (Ärzte für Aufklärung, german)
   - https://off-guardian.org/2020/03/28/10-more-experts-criticising-the-coronavirus-panic/ (10 MORE Experts Criticising the Coronavirus Panic - 2020/03)
   - https://www.bitchute.com/video/Qr2SNhpW0SAB/ - Dr. Daniel Erickson, owner of seven CA urgent care facilities, was thrown into the spotlight after his press conference on the COVID 19 stirred up enough controversy to get censored by YouTube. Here’s Del’s follow-up interview and this doc’s message is clear: he is not backing down
   - https://www.bitchute.com/video/zr04GsUupOwk/ - WE HAVE BEEN LIED TO - AMERICAN DOCTORS ADDRESS COVID-19 MISINFORMATION AT SCOTUS PRESS CONFERENCE. (43 mins)
