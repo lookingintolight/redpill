@@ -31,6 +31,11 @@ LEAKED VIDEO: ABC News Insider Recording EXPOSES EpsteinCoverup We had Clinton W
 
 
 ### Youtube
+PEDOGATE 2020 PT.3 - Symbolism & Pizzagate 2.0
+  - https://www.youtube.com/watch?v=kftvQhTH08U
+
+PEDOGATE 2020 PT.2 - Tom Hanx (NEW INFO)
+  - https://www.youtube.com/watch?v=SvAUa1FcvDk
 
 #PizzaGate / #PedoGate - The UnAnswered Questions Documentary - Part 1
   - https://www.youtube.com/watch?v=O5cbxANx5Yc
@@ -221,3 +226,5 @@ Wikileaks
 
 - Articles
     - https://www.berliner-zeitung.de/satanisten-toeten-in-deutschland-kinder-sagen-therapeuten-sektenbeauftragte-und-journalisten-doch-kriminalisten-finden-dafuer-keine-beweise-schwarze-geschichten-li.17623
+
+- 
