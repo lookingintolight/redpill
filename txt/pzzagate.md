@@ -32,7 +32,8 @@ LEAKED VIDEO: ABC News Insider Recording EXPOSES EpsteinCoverup We had Clinton W
 
 ### Youtube
 PEDOGATE 2020 PT.3 - Symbolism & Pizzagate 2.0
-  - https://www.youtube.com/watch?v=kftvQhTH08U
+  - https://www.youtube.com/watch?v=kftvQhTH08U (deleted by YT)
+  - https://www.bitchute.com/video/PmLHLgKH74tJ/
 
 PEDOGATE 2020 PT.2 - Tom Hanx (NEW INFO)
   - https://www.youtube.com/watch?v=SvAUa1FcvDk
