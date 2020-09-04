@@ -7,4 +7,4 @@
 ### Outline
 
 - [COVID](txt/covid.md)
-- [P!ZZAGATE](txt/covid.md)
+- [P!ZZAGATE](txt/pzzagate.md)
