@@ -49,4 +49,5 @@
 
 
 ### Joe Biden
+- https://www.youtube.com/watch?v=YGJGI1d96Ns - Epic Montage: You Don't Have to Like Trump, But After Seeing This, You Can't Vote for Joe Biden (7m)
 - https://twitter.com/TuckerCarlson/status/1232850814739329024 - Bragging Biden takes credit for everything.
