@@ -8,3 +8,4 @@
 
 - [COVID](txt/covid.md)
 - [P!ZZAGATE](txt/pzzagate.md)
+- [Qanon](txt/qanon.md)
