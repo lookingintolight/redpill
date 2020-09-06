@@ -41,17 +41,17 @@
 
 
 ### Vaxxed (Movie about Vaccines, 1h 30m)
-  - Vaxxed I 
+  - Vaxxed I
     - https://videos.utahgunexchange.com/watch/vaxxed-from-cover-up-to-catastrophe-2016_3mi8xnYwzpdPfEk.html
 
-  - Vaxxed II 
+  - Vaxxed II
     - https://www.bitchute.com/video/yU0P62jhVcTg/ (english)
   - Interviews visitors
     - https://www.youtube.com/watch?v=vVZNKL2jA2Y (VAXXED – Der Film, der nicht gesehen werden darf Andrew Wakefield in Berlin1)
 
 
 ### A shot in the dark (2020 Movie)
-  - https://www.bitchute.com/video/ijI50EmoQZid/ 
+  - https://www.bitchute.com/video/ijI50EmoQZid/
   - The Plan to Vaccinate Everyone in the U.S. (Barbara Loe Fisher)
   - https://www.bitchute.com/video/8GYZMfSWN0iw/
   - Coronavirus Déjà vu - Swine Flu Vaccination Fraud of 1976
@@ -84,6 +84,7 @@
   - https://www.thegatewaypundit.com/2020/08/killer-fauci-even-developing-nations-algeria-india-indonesia-cuba-used-hcq-fared-better-us-treating-coronavirus-average-79-better/
   - https://twitter.com/Sundncefn/status/1290631791150338048
     Dr. FAUCI in 2005 says HYDROXYCHLOROQUINE is effective against Corona viruses.
+  - [DR.SHIVA LIVE: HYDROXYCHLOROQUINE - HOW IT WORKS, BENEFITS AND SIDE EFFECTS. (video)](https://www.bitchute.com/video/vWdjBcmf4fVZ/)
 
 ### CDS (Chlordioxide)
   - https://www.bitchute.com/video/M0g7b9LO6Jjf/ (OVER 100 RECOVERED FROM COVID-19 WITH CDS BY PHYSICIANS OF THE AEMEMI)
@@ -108,6 +109,10 @@
   - Latrogenic Reaction
     - https://www.globalresearch.ca/america-iatrogenic-epidemic-drug-vaccine-induced-disorders/5687394
     - https://en.wikipedia.org/wiki/Iatrogenesis
+
+  - [EVERY VACCINATED CHILD IS IMPRINTED WITH THE GENETIC CODE FOR CANCER](https://www.bitchute.com/video/G7Y3Uutd9nbd/)
+    - [ПЛАН УНИЧТОЖЕНИЯ ЧЕЛОВЕЧЕСТВА. МАЙКЛ АДАМС #вакцина#состав #абортируемый #материал#инфицирование #код](https://www.youtube.com/watch?v=xlNbcWabcrk)
+
 
 
 ### Predictions
@@ -175,7 +180,7 @@
     - https://twitter.com/FreeAmerica2024/status/1289047208461885441?s=20 Dr. Lisa Koche, MD is speaking out about the coronavirus
       HYDROXYCHLOROQUINE, censorship, prevent prescription to patients, how does HYDROXYCHLOROQUINE work
 
-  - Dr. David Martin 
+  - Dr. David Martin
     - https://www.davidmartin.world/
     - https://www.youtube.com/watch?v=ZdbE8qv7cvo - Dr David Martin On Legal Case Against People Involved In Creating Super-Viruses
     - https://www.youtube.com/watch?v=S_uSZAWQmMM - Covid 19 Fact or Fiction with David Martin | TotalHealth TV
