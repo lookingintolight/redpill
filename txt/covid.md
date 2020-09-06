@@ -1,5 +1,6 @@
 ## COVID 19
 - https://off-guardian.org/category/coronavirus/ (Unlike the Guardian we are NOT funded by Bill & Melinda Gates, or any other NGO or government)
+- https://www.youtube.com/watch?v=4wFpSuHPmlI - Valuetainment Interview
 
 
 
@@ -102,6 +103,7 @@
   - https://www.bitchute.com/video/Ej0OELFifods/ (DR. MERCOLA DISCUSSES THE WORLD HEALTH ORGANIZATION)
 
 ### Vaccine ingridients
+  - https://twitter.com/99freemind/status/1302695402303565825 Doctor Carrie Madej Speaks out regarding the coming COVID Vaccine...
   - How to legally decline a vaccine:
     - https://1.bp.blogspot.com/-iI26vdu5ZHU/XzZDi2eC0kI/AAAAAAABN-s/9XZ3YgivJhwlmA7s-z9a13JFKU0ge054ACLcBGAsYHQ/s640/110026934_1221649391500986_5678400946059981346_n.jpg
   - MRC-5

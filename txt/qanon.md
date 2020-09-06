@@ -6,9 +6,16 @@
 - https://theqanonhub.weebly.com/
 - https://throughthelookingglassnews.wordpress.com/2017/11/24/q-anon-learn-to-read-the-map/
 
+- CEO Resignations list - https://www.resignation.info/list
 
 
-
+### Human Trafficing
+- https://human.globalincidentmap.com/
+- https://qresear.ch/arrests (Human Trafficking Arrests)
+- https://docs.google.com/spreadsheets/d/1MAnZZoD7y5Ydwx2rSrZualrZTNUYDY7gozTXkT0YUOs/edit#gid=2109508470 (Notable Human Trafficking Arrests - Please help in posting more info.Ty @ArrestAnon)
+  - https://docs.google.com/spreadsheets/d/1MAnZZoD7y5Ydwx2rSrZualrZTNUYDY7gozTXkT0YUOs/edit#gid=268553545
+- https://breakawayindividual.com/2020/03/29/evidence-of-the-mass-arrests-of-pedophiles-a-master-list/
+- https://www.churchmilitant.com/news/article/trump-busts-1500-pedophiles-media-keeps-silent
 
 ### TRUMP
 - https://www.youtube.com/watch?v=6nnnEc2zhq4 (Read Again.. Digest.. Logical Thinking.. The Great Awakening) (2020/08) - 38m
@@ -17,7 +24,9 @@
 - [How Racist is Trump Toward Black Americans? | Larry Elder Show - 2020/01](https://www.youtube.com/watch?v=gZw4pNdWXpc)
 - [Debunking Biggest Lie About Trump | Larry Elder - The Epoch Times - 2019/06](https://www.youtube.com/watch?v=5N_O-J_TAj8)
 - https://www.youtube.com/watch?v=3q_oKLts10I - Black Woman SHOCKS White Liberal, Defends Trump and Says Democrats Are the Real Racists
+- https://www.youtube.com/watch?v=RQY_XDvyJN8 - I Was Told Donald Trump Was Racist! I Was Duped by Media Lies!
 
+- https://twitter.com/chief_buzz/status/1301607068420407297 - Trump distancing himself from white supremasists
 - https://twitter.com/cjtruth/status/1178077592047489024 - Trump speech video (5m)
 - https://twitter.com/RepStevenSmith/status/1301944200070672391/photo/1 - All of this was FAKE NEWS
 - https://twitter.com/kyleolson4/status/1300616743350685701 - Joe Biden’s worst nightmare
@@ -33,6 +42,7 @@
 
 
 - https://www.youtube.com/watch?v=Qb7nG79bgAE ALL TRUMP ADS (> 4h compilation)
+- https://www.youtube.com/watch?v=Uk4PNAZEh80 - Red Pill Warrior Tribute Trump Qanon Tribute (2020/07)
 
 ### Trump full speaches (comments section important)
 - https://www.youtube.com/watch?v=KJnLNUrrffU&list=PLN8aszDzQ8LfawtFIhrV-AJkYLRgXUSEg&index=1 - Donald Trump makes speech to the UN general assembly (36m)
