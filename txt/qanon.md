@@ -17,9 +17,34 @@
 - https://breakawayindividual.com/2020/03/29/evidence-of-the-mass-arrests-of-pedophiles-a-master-list/
 - https://www.churchmilitant.com/news/article/trump-busts-1500-pedophiles-media-keeps-silent
 
-### TRUMP
+### TRUMP (also read comments section :))))
+
+##### Channels
+- [American Thought Leaders - The Epoch Times](https://www.youtube.com/channel/UCmWhuFRkZKu0g-e1xrlakVA)
+- [#WalkAway Campaign](https://www.youtube.com/c/WalkAwayCampaign/videos)
+- [Candace Owens](https://www.youtube.com/channel/UCL0u5uz7KZ9q-pe-VC8TY-w)
+- [Dinesh D'Souza](https://www.youtube.com/channel/UC8GAOCAJxBL4bExaUCvwL4Q)
+  - https://www.youtube.com/watch?v=_Q2iuGq_IDs - Trump Card - The Movie Trailer
+
+
+
+
+- [Victor Davis Hanson on “The Case For Trump” - 2019/05 - 1h](https://www.youtube.com/watch?v=FEXL5USuDGI) - check comments!
+
+- Election 2016
+  - https://www.youtube.com/watch?v=SdsrhDkl_p8 - Tucker Carlson reacts to Donald Trump winning the presidency (2016/11)
+  - https://www.youtube.com/watch?v=qkWmGmxe2QQ - Clinton, Obama, Ryan, McConnell React to Trump Win (2016/11)
+  - https://www.youtube.com/watch?v=elkuvDaIOOM - Exact Moment Hillary Learned She had Lost the Election - Neil Cavuto & Doug Wead (2017/03)
+  - https://www.youtube.com/watch?v=Az33CK79b_Q - Former Secret Service agent exposes Hillary Clinton - 2016/06
+
+  - https://www.youtube.com/watch?v=evd_uwHgXeA - The Left Uses "Racism" To Control Black Voters (2017/12)
+  - https://www.youtube.com/watch?v=iD0CYKK_mMo - Trump Derangement Syndrome: An American Epidemic (2017/12)
+
 - https://www.youtube.com/watch?v=6nnnEc2zhq4 (Read Again.. Digest.. Logical Thinking.. The Great Awakening) (2020/08) - 38m
 
+- [KingFace On the Trump Effect In Black Communities - 2019/11](https://www.youtube.com/watch?v=W6T_qoVoU5U)
+
+- [Trump Does The Unthinkable By Liz Crokin - 2020/06](https://www.youtube.com/watch?v=EUEW5sc4JaM)
 - [Trump Debunked [Part 1] MSM Trumps Up Controversy - 2020/08](https://www.youtube.com/watch?v=fHtjQKm37NI)
 - [How Racist is Trump Toward Black Americans? | Larry Elder Show - 2020/01](https://www.youtube.com/watch?v=gZw4pNdWXpc)
 - [Debunking Biggest Lie About Trump | Larry Elder - The Epoch Times - 2019/06](https://www.youtube.com/watch?v=5N_O-J_TAj8)
