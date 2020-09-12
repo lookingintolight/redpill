@@ -21,7 +21,7 @@
 
 ##### Channels
 - [American Thought Leaders - The Epoch Times](https://www.youtube.com/channel/UCmWhuFRkZKu0g-e1xrlakVA)
-- [#WalkAway Campaign](https://www.youtube.com/c/WalkAwayCampaign/videos)
+- [#WalkAway Campaign](https://www.youtube.com/c/WalkAwayCampaign/videos) - LOTS OF REAL PEOPLE
 - [Candace Owens](https://www.youtube.com/channel/UCL0u5uz7KZ9q-pe-VC8TY-w)
 - [Dinesh D'Souza](https://www.youtube.com/channel/UC8GAOCAJxBL4bExaUCvwL4Q)
   - https://www.youtube.com/watch?v=_Q2iuGq_IDs - Trump Card - The Movie Trailer
