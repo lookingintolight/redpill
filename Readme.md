@@ -6,6 +6,9 @@
 
 ### Outline
 
+
 - [COVID](txt/covid.md)
 - [P!ZZAGATE](txt/pzzagate.md)
+- [Trump](txt/trump.md)
 - [Qanon](txt/qanon.md)
+- [JFK Jr](txt/jfk.md)
