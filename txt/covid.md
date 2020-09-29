@@ -5,6 +5,7 @@
 
 
 ### Updates / News
+  - https://www.youtube.com/watch?v=SHRmvy8ZMHE - Die Corona-Religion (2020/03)
   - https://www.youtube.com/watch?v=rMrt1H0COuk&feature=youtu.be (DIE ERSTEN GALGEN WERDEN ERRICHTET ! - 2020/08/23)
 
 

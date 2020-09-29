@@ -51,6 +51,10 @@ Epstein Island
 
 Clinton (Hillary / Bill)
   - https://www.youtube.com/watch?v=7JQYPy0QNOw - Hillary Clinton Body Count Documentary - Serial Killer for President
+  - https://www.youtube.com/watch?v=_1dZ1BT1OHs - HILLARY Clinton THE MOVIE (2008)
+    - https://en.wikipedia.org/wiki/Hillary:_The_Movie
+  - https://lbry.tv/@Qanon:9/Did-you-know-this-about-Bill-Clinton:e - Did you know this about Bill Clinton (2m)
+  - https://lbry.tv/@QNewsCorner:1/who-is-rachel-chandler-bill-clinton:a - Who Is Rachel Chandler? || [Bill Clinton, Royals, Epstein] || (Rig For Red, #TrumpSucks, CNN)
 
 Bushes
   - http://tapnewswire.com/2020/02/the-history-and-mission-of-the-nazi-illuminati-bush-scherff-crime-family/
