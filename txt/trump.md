@@ -12,6 +12,10 @@
 
 - [Victor Davis Hanson on “The Case For Trump” - 2019/05 - 1h](https://www.youtube.com/watch?v=FEXL5USuDGI) - check comments!
 
+
+##### Walkaway
+- https://twitter.com/jakecoco/status/1268212921504608256/photo/1
+
 ##### Election 2016
   - https://www.youtube.com/watch?v=SdsrhDkl_p8 - Tucker Carlson reacts to Donald Trump winning the presidency (2016/11)
   - https://www.youtube.com/watch?v=qkWmGmxe2QQ - Clinton, Obama, Ryan, McConnell React to Trump Win (2016/11)

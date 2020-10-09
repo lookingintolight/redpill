@@ -55,6 +55,7 @@ Clinton (Hillary / Bill)
     - https://en.wikipedia.org/wiki/Hillary:_The_Movie
   - https://lbry.tv/@Qanon:9/Did-you-know-this-about-Bill-Clinton:e - Did you know this about Bill Clinton (2m)
   - https://lbry.tv/@QNewsCorner:1/who-is-rachel-chandler-bill-clinton:a - Who Is Rachel Chandler? || [Bill Clinton, Royals, Epstein] || (Rig For Red, #TrumpSucks, CNN)
+  - https://www.youtube.com/watch?v=wyueqAr4wcs - CLINTON CASH : OFFICIAL Clinton Foundation DOCUMENTARY FULL MOVIE, Facts, Names, SHOCKING TRUTH (2020/10)
 
 Bushes
   - http://tapnewswire.com/2020/02/the-history-and-mission-of-the-nazi-illuminati-bush-scherff-crime-family/
