@@ -39,6 +39,7 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
 
 - 911
   - https://www.youtube.com/watch?v=jOEw8Np0CJY - The Numerology of the September 11th Attacks
+  - https://www.youtube.com/watch?v=b3gJZw6X-LA - Mark Passio - Masonic Symbolism & 9/11 Occult Numerology
   - https://www.youtube.com/watch?v=_AUclXzapJo - What is Predictive Programming? | 100% Proof of Hollywood Brainwashing & Foreknowledge
   - https://www.youtube.com/watch?v=pxVNOmM2aKU - LOOSE CHANGE 2
   - https://www.youtube.com/watch?v=oESLA5lRrJM - Loose Change Final Cut (FULL VERSION) 9/11 is self inflicted.
