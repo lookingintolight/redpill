@@ -18,6 +18,11 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
 - Predictive Programming (*)
 - Black Projects (*)
 - New World Order (*)
+  - Dr Richard Day. New Order of Barbarians
+    - http://www.citizensnewswire.org/files/NWORichardDay.pdf (Transcript)
+    - https://www.youtube.com/watch?v=kcGqkvjKCvA&list=PLnkQ-avVeX9f4KbkoCm6kytem2XLB7nOg
+    - Tape 1 - https://www.youtube.com/watch?v=kcGqkvjKCvA
+    - Tape 2 - https://www.youtube.com/watch?v=WILcw6OlV1E
 - Agenda 2030 (*)
 - Rockefeller Lockstep Protocol (*)
   - https://www.nommeraadio.ee/meedia/pdf/RRS/Rockefeller%20Foundation.pdf (from page 18)
