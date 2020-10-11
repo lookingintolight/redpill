@@ -110,6 +110,7 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
   - https://www.youtube.com/c/SUNOFSATURN/videos (Sun Of Saturn)
   - https://www.youtube.com/channel/UCZH9B7eyNh_7tvl01yOcLPg/videos (You Cant Handle The Truth)
   - https://www.youtube.com/c/TitusFrost/videos (Titus Frost)
+  - https://www.youtube.com/channel/UCTbytG5xx4OaffAUFTyseCQ/videos (The Truth Will Set You Free)
   - https://www.youtube.com/c/MouthyBuddha/videos (Mouthy Buddha)
 
 
