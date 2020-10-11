@@ -1,3 +1,6 @@
+Topics / words marked with `(*)` are for looking up. First few pages in search engines will manipulated results.
+
+
 - Aleister Crowley (*)
 - Bilderberg group (*)
 - bohemian grove (*)
