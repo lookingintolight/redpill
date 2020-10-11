@@ -3,12 +3,17 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
 
 - Aleister Crowley (*)
 - Bilderberg group (*)
-- bohemian grove (*)
+- Bohemian grove (*)
   - https://en.wikipedia.org/wiki/List_of_Bohemian_Club_members
-- christian holidays pagan origins (*)
+- Christian holidays pagan origins (*)
+- Clinton Body Count (*)
+  - https://www.youtube.com/watch?v=UoE73WNoCXo (Hillary Clinton Body Count Documentary)
 - MK Ultra  (*)
 - Monarch Programming (*)
 - Montauk Project (*)
+- Project Star Gate (*)
+  - FBI declassified documents exist
+  - https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00789R003300210001-2.pdf
 - SRA - Satanic Ritual Abuse (*)
 - Predictive Programming (*)
 - Black Projects (*)
@@ -21,6 +26,10 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
 - Vatican Telescop LUCIFER (*)
   - https://www.ecumenicalnews.com/article/vatican-astronomers-are-searching-for-alien-life-say-auhors-22068
 - Washington dc masonic symbols (*)
+  - https://www.youtube.com/playlist?list=PL1a4bt-z5IaGf1OolKF3NPQnVjbNrSlDr (playlist with some videos)
+- Walkaway Movement (*)
+  - https://www.walkawaycampaign.com/videotestimonials
+  - https://www.youtube.com/results?search_query=%23walkaway
 
 
 - 911
@@ -95,6 +104,8 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
   - https://www.youtube.com/c/ShakingMyHeadProductions/videos (Shaking My Head Productions)
   - https://www.youtube.com/c/SUNOFSATURN/videos (Sun Of Saturn)
   - https://www.youtube.com/channel/UCZH9B7eyNh_7tvl01yOcLPg/videos (You Cant Handle The Truth)
+  - https://www.youtube.com/c/TitusFrost/videos (Titus Frost)
+  - https://www.youtube.com/c/MouthyBuddha/videos (Mouthy Buddha)
 
 
 Portals
