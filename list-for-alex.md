@@ -5,7 +5,7 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
 - Bilderberg group (*)
 - bohemian grove (*)
   - https://en.wikipedia.org/wiki/List_of_Bohemian_Club_members
-- christian holidays (*)
+- christian holidays pagan origins (*)
 - MK Ultra  (*)
 - Monarch Programming (*)
 - Montauk Project (*)
