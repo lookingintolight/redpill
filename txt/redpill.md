@@ -11,7 +11,7 @@ JFK assassination
   - https://www.youtube.com/watch?v=_AUclXzapJo - What is Predictive Programming? | 100% Proof of Hollywood Brainwashing & Foreknowledge
   - https://www.youtube.com/watch?v=Ta97S4Tlwmc - Doku Deutsch Loose Change 2nd Edition Deutsch Hd
   - https://www.youtube.com/watch?v=pxVNOmM2aKU - LOOSE CHANGE 2
-  - https://www.youtube.com/watch?v=oESLA5lRrJM - Loose Change Final Cut (FULL VERSION) 9/11 is self inflicted. x
+  - https://www.youtube.com/watch?v=oESLA5lRrJM - Loose Change Final Cut (FULL VERSION) 9/11 is self inflicted.
   - https://www.youtube.com/watch?v=PGPqLX9XYbk Project Camelot; Bill Wood; Above & Beyond Project Looking Glass - Mandela Effect Explanation
     - 1h18m30s - Bill erklärt, warum die offizielle Version des Anschlags sehr unrealistisch ist
   - https://www.youtube.com/watch?v=kGaeKfZkuFQ - 9/11 Tribute 2020-Predictive Programming & Conspiracy Facts - 2020-9-11 - 2h30m

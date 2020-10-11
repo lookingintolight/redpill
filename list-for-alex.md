@@ -117,5 +117,13 @@ Portals
   - https://forbiddentruth.tv/
   - https://vigilantcitizen.com
 
+
+Telegram
+  - https://t.me/Biblical_vs_Freesmasonry
+  - https://t.me/Conspiracyfactsdeutsch
+  - https://t.me/kindesmissbrauch
+  - https://t.me/Adrenocrime
+  - https://t.me/Junges_Blut
+
 Videos to watch
   - https://www.youtube.com/watch?v=Ur59hYQxdwI (Living In The Upside Down)
