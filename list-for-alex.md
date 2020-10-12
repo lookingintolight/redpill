@@ -136,5 +136,5 @@ Telegram
   - https://t.me/Junges_Blut
 
 Videos to watch
-  - https://www.youtube.com/watch?v=Ur59hYQxdwI (Living In The Upside Down)
+  - Living In The Upside Down - https://www.youtube.com/watch?v=Ur59hYQxdwI
   - Yuri Bezmenov - How to destroy a country - https://www.youtube.com/watch?v=pzeHpf3OYQY
