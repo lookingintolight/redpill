@@ -1,33 +1,34 @@
 Topics / words marked with `(*)` are for looking up. First few pages in search engines will manipulated results.
 
-
+- Agenda 2030 (*)
 - Aleister Crowley (*)
 - Bilderberg group (*)
+- Black Projects (*)
 - Bohemian grove (*)
   - https://en.wikipedia.org/wiki/List_of_Bohemian_Club_members
 - Christian holidays pagan origins (*)
 - Clinton Body Count (*)
   - https://www.youtube.com/watch?v=UoE73WNoCXo (Hillary Clinton Body Count Documentary)
+- Corona New Normal (*)
+  - accept new liberty restriction named with "New Normal"
+- DUMBs (Deep Underground Military Bases) (*)
 - MK Ultra  (*)
 - Monarch Programming (*)
 - Montauk Project (*)
+- Operation Paperclip (*)
 - Project Star Gate (*)
   - FBI declassified documents exist
   - https://www.cia.gov/library/readingroom/docs/CIA-RDP96-00789R003300210001-2.pdf
 - SRA - Satanic Ritual Abuse (*)
 - Predictive Programming (*)
-- Black Projects (*)
 - New World Order (*)
   - Dr Richard Day. New Order of Barbarians
     - http://www.citizensnewswire.org/files/NWORichardDay.pdf (Transcript)
     - https://www.youtube.com/watch?v=kcGqkvjKCvA&list=PLnkQ-avVeX9f4KbkoCm6kytem2XLB7nOg
     - Tape 1 - https://www.youtube.com/watch?v=kcGqkvjKCvA
     - Tape 2 - https://www.youtube.com/watch?v=WILcw6OlV1E
-- Agenda 2030 (*)
 - Rockefeller Lockstep Protocol (*)
   - https://www.nommeraadio.ee/meedia/pdf/RRS/Rockefeller%20Foundation.pdf (from page 18)
-- Corona New Normal (*)
-  - accept new liberty restriction named with "New Normal"
 - Vatican Telescop LUCIFER (*)
   - https://www.ecumenicalnews.com/article/vatican-astronomers-are-searching-for-alien-life-say-auhors-22068
 - Washington dc masonic symbols (*)
@@ -106,6 +107,13 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
 
 - Channels with **partial** truth and **exaggerated naration**, still worth looking into just for the information
   - https://www.youtube.com/c/MarkPassio/videos (Mark Passio)
+    - Mark Passio - De-Mystifying The Occult - Part 1 of 3 - https://www.youtube.com/watch?v=e1V98DsNXi0
+    - Mark Passio - De-Mystifying The Occult - Part 2 of 3 - https://www.youtube.com/watch?v=8HiYN2LXvpI
+    - Mark Passio - De-Mystifying The Occult - Part 3 of 3 - https://www.youtube.com/watch?v=C6E6abDdBII
+    - Mark Passio - De-Mystifying The Occult - Part II: Satanism & The Dark Occult- https://www.youtube.com/watch?v=FUDdOR618xE
+    - De-Mystifying The Occult, Part II – Jay Parker – Time Of Decision - https://www.youtube.com/watch?v=R6HXra1HJlg
+    - Mark Passio - Occult Mockery Of Police & Military Personnel - https://www.youtube.com/watch?v=3z2chw_bR50
+    - Mark Passio - The Cult Of Ultimate Evil - Order-Followers & The Destruction Of The Sacred Feminine - https://www.youtube.com/watch?v=ZSqBNGxLiAs
   - https://www.youtube.com/user/nicholson1968/videos (Nicolson1698)
   - https://www.youtube.com/c/ShakingMyHeadProductions/videos (Shaking My Head Productions)
   - https://www.youtube.com/c/SUNOFSATURN/videos (Sun Of Saturn)
@@ -129,3 +137,4 @@ Telegram
 
 Videos to watch
   - https://www.youtube.com/watch?v=Ur59hYQxdwI (Living In The Upside Down)
+  - Yuri Bezmenov - How to destroy a country - https://www.youtube.com/watch?v=pzeHpf3OYQY
