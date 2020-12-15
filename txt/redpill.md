@@ -8,7 +8,7 @@ Great Reset (Covid19 / World Economic Forum / Klaus Schwab)
   - https://www.goodreads.com/book/show/54498122-covid-19
   - https://www.news.com.au/finance/economy/world-economy/the-great-reset-wild-new-coronavirus-conspiracy-theory-takes-hold/news-story/2b36b726b181710d6843b8a69b73919e
   - https://www.strategic-culture.org/news/2020/10/24/covid-19-lockdowns-arelockstep-with-great-reset/
-  - https://www.youtube.com/watch?v=kIWqwGiBivE
+  - ["COVID-19 The Great Reset": Wie äußert sich der WEF-Gründer Klaus Schwab zu COVID-19?](https://www.youtube.com/watch?v=kIWqwGiBivE)
 
 JFK assassination
   - https://www.youtube.com/watch?v=-NlJQJUUqR4&bpctr=1600651085 - Dark Legacy: George Bush And The Murder Of John Kennedy
