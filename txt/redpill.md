@@ -2,6 +2,14 @@ IN-SHADOW - A Modern Odyssey
   - https://www.youtube.com/watch?v=j800SVeiS5I - IN-SHADOW - A Modern Odyssey - Animated Short Film - 13m
 
 
+Great Reset (Covid19 / World Economic Forum / Klaus Schwab)
+  - https://www.weforum.org/agenda/2020/07/covid-19-the-great-reset/
+  - https://www.amazon.com/COVID-19-Great-Reset-Klaus-Schwab/dp/2940631123#customerReviews
+  - https://www.goodreads.com/book/show/54498122-covid-19
+  - https://www.news.com.au/finance/economy/world-economy/the-great-reset-wild-new-coronavirus-conspiracy-theory-takes-hold/news-story/2b36b726b181710d6843b8a69b73919e
+  - https://www.strategic-culture.org/news/2020/10/24/covid-19-lockdowns-arelockstep-with-great-reset/
+  - https://www.youtube.com/watch?v=kIWqwGiBivE
+
 JFK assassination
   - https://www.youtube.com/watch?v=-NlJQJUUqR4&bpctr=1600651085 - Dark Legacy: George Bush And The Murder Of John Kennedy
   - https://www.youtube.com/watch?v=yhzTp62cukg - JFK II - The Bush Connection... How Bush fits into the JFK Assassination...
