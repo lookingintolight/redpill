@@ -9,6 +9,8 @@ Topics / words marked with `(*)` are for looking up. First few pages in search e
 - Christian holidays pagan origins (*)
 - Clinton Body Count (*)
   - https://www.youtube.com/watch?v=UoE73WNoCXo (Hillary Clinton Body Count Documentary)
+  - https://www.bitchute.com/video/4I81nVNND8uM/
+
 - Corona New Normal (*)
   - accept new liberty restriction named with "New Normal"
 - DUMBs (Deep Underground Military Bases) (*)
